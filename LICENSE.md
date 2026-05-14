@@ -1,4 +1,4 @@
-#  
+#  new Script for ultimate mining tycoon is the best ultimate mining tycoon Script, featuring god mode and no clip. Safe and powerful for all your needs.
 
 
 
